@@ -1,0 +1,11 @@
+- 👋 Hi, I’m @Humblelee71
+- 👀 I’m interested in Content Writing, Community Management & Moderation 
+- 🌱 I’m currently learning about NFTs Créations.
+- 💞️ I’m looking to collaborate on Graphic Designing and Arts illustration 
+- 📫 How to reach me leehumbae7@gmail.com or my X handle: https://x.com/humblelee71 also Discord & TG: @Humblelee71.
+- 😄 Pronouns: ...
+- ⚡ Fun fact: ...
+- Experience: >2 years
+
+- 
+- I am a content writer with a Niche for Beautifully Crafted Words that resonates also combined with my community Moderation skills, i am capable of fostering a peaceful and vibrant community and also a welcoming environ for new members.
